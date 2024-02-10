@@ -5,9 +5,7 @@
 
 - 📫 How to reach me **tejasdube2370@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/drive/my-drive
-
-- ⚡ Fun fact **I think i am a Creative**
+- 📄 Know about my experiences https://drive.google.com/file/d/1AjppMsqAawddCko36LuJskslzq6Ke-WR/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
