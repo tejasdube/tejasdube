@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **tejasdube2370@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1AjppMsqAawddCko36LuJskslzq6Ke-WR/view?usp=sharing
+- 📄 Know about my experiences https://drive.google.com/file/d/16SfDnmh-m_Q5or9b167-7y9S1KJSvgSu/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
