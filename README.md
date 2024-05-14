@@ -5,8 +5,7 @@
 
 - 📫 How to reach me **tejasdube2370@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/16SfDnmh-m_Q5or9b167-7y9S1KJSvgSu/view?usp=drive_link
-
+- 📄 Know about my experiences https://drive.google.com/file/d/172mq_WO-VlHH7jmyR1wXwmQR-0q3NIpz/view?usp=sharing
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/tejas-dube-3a4898232/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/tejas-dube-3a4898232/" height="30" width="40" /></a>
